@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NTM-cloud
+- 👀 I’m interested in Games, 3D and more
+- 🌱 I’m currently learning at the Deutsche Pop Köln.
+- 💞️ I’m looking to collaborate on Games and Projects with nice People
+- 📫 Instagram: Its_ntm
